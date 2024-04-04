@@ -1,1 +1,1 @@
-# Dolgozat
+# Lajter László
